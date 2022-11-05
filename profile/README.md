@@ -46,9 +46,9 @@ We value your opinion and we wish to together, let's make a good ecosystem and o
 #  🙌 Contribute and make our community a better place!!!
 We encourage you help other people in this community and best leave your footprints here on Github.<br/>
 
-These favors can be small or big, but most importantly, you do it with GOODWILL, which goes right to Good Display's Motto and our company value!<br/>
+These favors can be small or big, but most importantly, you do it with GOODWILL, which goes right to Good Display's Motto and our company's shared value!<br/>
 
-They shall be valued and be prized accordingly!<br/>
+They shall be valued and be prized for accordingly!<br/>
 
 SO, DO LET US KNOW SHOULD YOU DO SOMEBODY'S FAVOR during his/her/their use of Good Display's products!!!
 
