@@ -105,12 +105,12 @@ Fasani Corporation](https://fasani.de/)
     
 ![image](https://user-images.githubusercontent.com/57305534/199925452-0fd5b700-fd34-4fe4-adca-971235fbc6f2.png)
 <br/>
+ 
+Equality: We treat each other equally with mutual respect; we share with each other every success we gained. <br/>
 
-Equality: Treating others as equals and mutual respect. Everyone is a operator and should share of common success.<br/>
+Cooperation: We trust our partners and we are good team-players. <br/>
 
-Cooperation: Trusting your partners,  cooperating and sharing with each other.<br/>
+Innovation: We locate your real needs, think out of the box while keep learning and improving; we transform every idea into a tangible solution that later becomes a value-provider to the real market. <br/>
 
-Innovation: Finding out real needs, breaking the rules, and keeping learning and impoving; Turning an idea into a solution that adds value from a customer's perspective.<br/>
-
-Happiness: Seeking to make the employees happy, both materially and intellectually；We would love each other and take care of each other and work happily live happily.
+Happiness: What we do shall make our employees happy that they earn the bread physically and spiritually；with love, we take good care of each other, together we achieve work and life balance!
 <br/>
