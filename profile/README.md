@@ -7,7 +7,7 @@ Many may type slowly a big ? when they for the 1st time seeing it because oh man
 You've gotta take this GITHUB thing more seriously.
 And, it's not yet an organization account with it's EPD example libraries out-dated with no one instilling with blood, time, energy to take good care of it...
 
-So, after taking Martin Fasani's good advice, (https://github.com/martinberlin) to open one here to keep up with MODERNIZATION just like many other good companies are doing right the moment!!! Hoorray! Finally!
+So, after taking Martin Fasani's good advice, (https://github.com/martinberlin) we opened up one here to keep up with MODERNIZATION just like many other good companies are doing right the moment!!! Hoorray! Finally!
 
 <br/>
 
