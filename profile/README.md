@@ -94,9 +94,6 @@ Please do consider to support us by joining us to maintain these repositories. T
 CHECK OUT OUR MARVELLOUS CO-WORKERS & DEAR FRIENDS LISTS!
 - [![image](https://user-images.githubusercontent.com/57305534/199915086-7fab4da6-61ed-4d87-8af9-85163372cf94.png)
 Fasani Corporation](https://fasani.de/) 
-
-
-
 <br/>
 
 
@@ -113,4 +110,33 @@ Cooperation: We trust our partners and we are good team-players. <br/>
 Innovation: We locate your real needs, think out of the box while keep learning and improving; we transform every idea into a tangible solution that later becomes a value-provider to the real market. <br/>
 
 Happiness: What we do shall make our employees happy that they earn the bread physically and spiritually；with love, we take good care of each other, together we achieve work and life balance!
+<br/>
+
+
+
+
+
+
+# Vendor Shops
+[![image](https://ozrobotics.com/wp-content/uploads/2019/10/OzRobotics-2019.png)
+OZ Robotics Verified](https://ozrobotics.com/vendors/gooddisplay/)<br/> 
+
+<br/>
+
+
+
+
+
+
+[![image](https://assets.goodereader.com/blog/uploads/images/2022/10/06041513/goodeareader-logo-final-750x150.png.webp)
+GoodEreader Verified](https://goodereader.com/blog/vendor/epaperdisplay-eink-goodisplay)<br/> 
+
+
+
+
+
+
+
+
+
 <br/>
